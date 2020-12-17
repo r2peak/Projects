@@ -1,12 +1,14 @@
-如果你看到了这句话，
-希望我的分享能帮助到你。
-愿我们共同进步，
-前途无量。
+If you see this sentence,
 
+I hope my share can help you.
+
+May we make progress together,
+
+have boundless prospects.
 
 From the bottom to the top.
 
 
 --HueyM
 
-写于2020.12.17
+Written on December 17, 2020
